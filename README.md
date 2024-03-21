@@ -41,8 +41,6 @@ https://drive.google.com/file/d/1DLnmj236P_yL-hLpYBEPQJ08yWDoxHjF/view?usp=shari
 DB 135-148
 https://drive.google.com/file/d/15S0PUBDFKCwKvFoZUpUZWGB7lb8q0ldB/view?usp=sharing
 
-DB 149-153
-https://drive.google.com/file/d/14MIiPrbDgjzypdvWnvCr4FhobBQk6G-0/view?usp=sharing
 
 https://directqwerty.000webhostapp.com/
 
@@ -181,11 +179,6 @@ https://drive.google.com/file/d/1K_Xlzq5_b5oss7hlR5S0CEuvF3VwG7dU/view?usp=shari
 DBZ 273-275
 https://drive.google.com/file/d/1JSZT8_7ADFtTMOQRcybvN6ATKQ2pSoal/view?usp=sharing
 
-DBZ 276-287
-https://drive.google.com/file/d/1Su_141X17Lmtoo5BIKVumKOMIMWHACVp/view?usp=sharing
-
-DBZ 288-291 Y DB GT CAP 1
-https://drive.google.com/file/d/1EyOL7A1UpgtCoJSsKoSPWxUSO3rc95JB/view?usp=sharing
 
 https://directqwerty.000webhostapp.com/
 

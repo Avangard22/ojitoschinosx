@@ -58,7 +58,10 @@ https://drive.google.com/file/d/15S0PUBDFKCwKvFoZUpUZWGB7lb8q0ldB/view?usp=shari
 
 https://directqwerty.000webhostapp.com/
 
+
+
 DRAGON BALL Z
+
 
 DRAGON BALL Z 1-8
 
@@ -73,9 +76,11 @@ DBZ 13-22
 https://drive.google.com/file/d/12CM3gTD1Ms-8Cb6in0wiZMVQM875M5Go/view?usp=sharing
 
 DBZ 23-35
+
 https://drive.google.com/file/d/19Hv_pilkVqgYQKUJ5UMynrJvz4A1p4lE/view?usp=sharing
 
 DBZ 36-41
+
 https://drive.google.com/file/d/1cXYs73rZTJRb-JL5cz0zhxdFyNec9cRL/view?usp=sharing
 
 DBZ 42-48
@@ -228,14 +233,6 @@ DBZ 267-269
 
 https://drive.google.com/file/d/1qm4AEM-QDkzzzjlQfqt8ZOmqXuJvb0Nn/view?usp=sharing
 
-DBZ 270-272 (PELICULA JANEMBA)
-
-https://drive.google.com/file/d/1K_Xlzq5_b5oss7hlR5S0CEuvF3VwG7dU/view?usp=sharing
-
-DBZ 273-275
-
-https://drive.google.com/file/d/1JSZT8_7ADFtTMOQRcybvN6ATKQ2pSoal/view?usp=sharing
-
 
 https://directqwerty.000webhostapp.com/
 
@@ -279,23 +276,6 @@ DB GT 39-40
 
 https://drive.google.com/file/d/1488G9u1-OjieSxB_xIAcYWBKt5cEmOz_/view?usp=sharing
 https://u.pcloud.link/publink/show?code=XZBrn50Zlzp24PWSfv8oGOalRjmjcytbM3xy
-
-PELÍCULA TAPIÓN DBZ
-
-https://drive.google.com/file/d/1umLpLSoMuA9TN0YWulKvyZETvWdRwaI7/view?usp=sharing
-https://u.pcloud.link/publink/show?code=XZXsn50ZvY0Rp761y0VdzpVRrS4YzVvnzJ9X
-
-DB GT 41-47
-
-https://drive.google.com/file/d/1z4xSYJyfMuJO4iYyXsRI5chCgOzlg0vr/view?usp=sharing
-
-DB GT 48-50
-
-https://drive.google.com/file/d/1xHhjeeUo_VtKGCdoHLTq_k6Dj0pgaWF0/view?usp=sharing
-
-DB GT 51-57
-
-https://drive.google.com/file/d/1bnk6ctd0Zkulywszj1zOEdTlph2ESUze/view?usp=sharing
 
 
 https://directqwerty.000webhostapp.com/

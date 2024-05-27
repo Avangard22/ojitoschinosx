@@ -55,7 +55,7 @@ DB 135-148
 
 https://drive.google.com/file/d/15S0PUBDFKCwKvFoZUpUZWGB7lb8q0ldB/view?usp=sharing
 
-
+https://discord.gg/NAqFCzbQN9
 https://directqwerty.000webhostapp.com/
 
 
@@ -153,7 +153,7 @@ https://drive.google.com/file/d/1tWzZk7W0dWHs3_peVSo3EtKyLEdJqXV1/view?usp=shari
 
 DBZ 160-167
 
-+https://drive.google.com/file/d/1OGx1blHoRYW1DAArPSGgDelBfMEtzHHp/view?usp=sharing
+https://drive.google.com/file/d/1OGx1blHoRYW1DAArPSGgDelBfMEtzHHp/view?usp=sharing
 
 DBZ 168-171
 
@@ -233,7 +233,7 @@ DBZ 267-269
 
 https://drive.google.com/file/d/1qm4AEM-QDkzzzjlQfqt8ZOmqXuJvb0Nn/view?usp=sharing
 
-
+https://discord.gg/NAqFCzbQN9
 https://directqwerty.000webhostapp.com/
 
 DB GT 2-8
@@ -277,5 +277,7 @@ DB GT 39-40
 https://drive.google.com/file/d/1488G9u1-OjieSxB_xIAcYWBKt5cEmOz_/view?usp=sharing
 https://u.pcloud.link/publink/show?code=XZBrn50Zlzp24PWSfv8oGOalRjmjcytbM3xy
 
+
+https://discord.gg/NAqFCzbQN9
 
 https://directqwerty.000webhostapp.com/

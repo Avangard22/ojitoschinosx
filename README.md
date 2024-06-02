@@ -51,11 +51,9 @@ DB 127-134
 
 https://drive.google.com/file/d/1DLnmj236P_yL-hLpYBEPQJ08yWDoxHjF/view?usp=sharing
 
-DB 135-148
-
-https://drive.google.com/file/d/15S0PUBDFKCwKvFoZUpUZWGB7lb8q0ldB/view?usp=sharing
 
 https://discord.gg/NAqFCzbQN9
+
 https://directqwerty.000webhostapp.com/
 
 
@@ -201,9 +199,6 @@ DBZ 228-237
 
 https://drive.google.com/file/d/1cgfZbh2NKMfHE3pdei2fFlM4ZlUQROFb/view?usp=sharing
 
-PELÍCULA DBZ LA GALAXIA CORRE PELIGRO 
-
-https://drive.google.com/file/d/1Dhvb6H3JWwdvRCx8eL0PTqnITB0pDhod/view?usp=sharing
 
 PELÍCULA DE TURLES Y BROLY (ESPECIAL NAVIDAD)
 
@@ -229,12 +224,12 @@ DBZ 257-266
 
 https://drive.google.com/file/d/1o67ipbuMA-xrR9LvxJT5FRVVFLzmLp4c/view?usp=sharing
 
-DBZ 267-269
 
-https://drive.google.com/file/d/1qm4AEM-QDkzzzjlQfqt8ZOmqXuJvb0Nn/view?usp=sharing
 
 https://discord.gg/NAqFCzbQN9
+
 https://directqwerty.000webhostapp.com/
+
 
 DB GT 2-8
 

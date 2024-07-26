@@ -53,7 +53,7 @@ https://drive.google.com/file/d/1DLnmj236P_yL-hLpYBEPQJ08yWDoxHjF/view?usp=shari
 
 
 https://discord.gg/NAqFCzbQN9
-
+https://directosqwerty.onrender.com/
 https://directqwerty.000webhostapp.com/
 
 
@@ -227,7 +227,7 @@ https://drive.google.com/file/d/1o67ipbuMA-xrR9LvxJT5FRVVFLzmLp4c/view?usp=shari
 
 
 https://discord.gg/NAqFCzbQN9
-
+https://directosqwerty.onrender.com/
 https://directqwerty.000webhostapp.com/
 
 
@@ -274,5 +274,5 @@ https://u.pcloud.link/publink/show?code=XZBrn50Zlzp24PWSfv8oGOalRjmjcytbM3xy
 
 
 https://discord.gg/NAqFCzbQN9
-
+https://directosqwerty.onrender.com/
 https://directqwerty.000webhostapp.com/

@@ -52,8 +52,13 @@ DB 127-134
 https://drive.google.com/file/d/1DLnmj236P_yL-hLpYBEPQJ08yWDoxHjF/view?usp=sharing
 
 
+
+
+
 https://discord.gg/NAqFCzbQN9
+
 https://directosqwerty.onrender.com/
+
 https://directqwerty.000webhostapp.com/
 
 
@@ -226,8 +231,12 @@ https://drive.google.com/file/d/1o67ipbuMA-xrR9LvxJT5FRVVFLzmLp4c/view?usp=shari
 
 
 
+
+
 https://discord.gg/NAqFCzbQN9
+
 https://directosqwerty.onrender.com/
+
 https://directqwerty.000webhostapp.com/
 
 
@@ -270,9 +279,15 @@ https://drive.google.com/file/d/1ezj5yCQnVTglLkjSZfnb2uUmBfaruU60/view?usp=shari
 DB GT 39-40
 
 https://drive.google.com/file/d/1488G9u1-OjieSxB_xIAcYWBKt5cEmOz_/view?usp=sharing
+
 https://u.pcloud.link/publink/show?code=XZBrn50Zlzp24PWSfv8oGOalRjmjcytbM3xy
 
 
+
+
+
 https://discord.gg/NAqFCzbQN9
+
 https://directosqwerty.onrender.com/
+
 https://directqwerty.000webhostapp.com/
